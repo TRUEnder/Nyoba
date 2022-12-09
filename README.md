@@ -8,7 +8,6 @@ Here is the link to the video of [URL Encoding List](https://www.w3schools.com/t
 - [Lahirnya Sri Rama](https://www.tokopedia.com/laksonobuku/lahirnya-sri-rama-dewi-shinta-ra-kosasih-hard-cover?extParam=ivf%3Dfalse%26src%3Dsearch)
 - [Leluhur Hastina](https://www.tokopedia.com/goletbatishop/cergam-leluhur-hastina-cerita-sebelum-mahabarata-r-a-kosasih?extParam=ivf%3Dfalse%26src%3Dsearch)
 - Candra Birawa
-- [Puntadewa Lahir](https://www.tokopedia.com/bukukobis/puntadewa-lahir-a-sulaha?extParam=ivf%3Dfalse%26src%3Dsearch), sisa 1
 - [Dipati Karna](https://www.tokopedia.com/komikjadul/komik-wayang-dipati-karna?extParam=ivf%3Dfalse%26src%3Dsearch), sisa 6
 - Batara Kresna
   - [45k](https://www.tokopedia.com/anelinda-books/batara-kresna?extParam=ivf%3Dfalse%26src%3Dsearch)
