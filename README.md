@@ -1,6 +1,6 @@
 # Komik Wayang
 
-Here is the link to the video of [URL Encoding List](https://www.w3schools.com/tags/ref_urlencode.ASP)
+Here is the link to the article of [URL Encoding List](https://www.w3schools.com/tags/ref_urlencode.ASP)
 
 - [Raja Purwa Carita](https://www.tokopedia.com/komiknik/raja-purwa-carita-karya-r-a-kosasih-hard-cover?extParam=ivf%3Dfalse%26src%3Dsearch)
 - [Batara Wisnu](https://www.tokopedia.com/bukule/r-a-kosasih-batara-wisnu?extParam=ivf%3Dfalse%26src%3Dsearch&refined=true)
