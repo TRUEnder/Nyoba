@@ -14,7 +14,7 @@ Here is the link to the article of [URL Encoding List](https://www.w3schools.com
 - Batara Kresna
   - [45k](https://www.tokopedia.com/anelinda-books/batara-kresna?extParam=ivf%3Dfalse%26src%3Dsearch)
   - [55k](https://www.tokopedia.com/komiknik/batara-kresna-komik-wayang-karya-r-a-kosasih?extParam=ivf%3Dfalse%26src%3Dsearch)
-- [Dewa Ruci](https://www.tokopedia.com/komiknik/dewa-ruci-bima-sakti-komik-wayang-karya-r-a-kosasih?extParam=ivf%3Dfalse%26src%3Dsearch)
+- [Dewa Ruci](https://www.tokopedia.com/komiknik/dewa-ruci-bima-sakti-komik-wayang-karya-r-a-kosasih?extParam=ivf%3Dfalse%26src%3Dsearch) (+ Dewa Gordah)
 - [Lahirnya Bomantara](https://www.tokopedia.com/radityo/lahirnya-bomantara-komik-jadul-cerita-wayang-ra-kosasih-original?extParam=ivf%3Dfalse%26src%3Dsearch)
 - [Burisrawa Merindukan Rembulan](https://www.tokopedia.com/cityhunter/komik-burisrawa-merindukan-bulan-r-a-kosasih?extParam=ivf%3Dfalse%26src%3Dsearch), sisa 1
 - [Bharatayudha](https://www.tokopedia.com/riskabookstore/buku-bharatayudha?extParam=whid%3D13291796)
